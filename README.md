@@ -1,1 +1,1 @@
-Šeit ievietoti prasītie materiāli priekš kursa RAE555
+Šeit ievietoti prasītie materiāli priekš kursa RAE555.
