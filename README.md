@@ -1,1 +1,1 @@
-# RAE555-F21-181REB262
+Šeit ievietoti prasītie materiāli priekš kursa RAE555
